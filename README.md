@@ -1,2 +1,3 @@
-# Auto-Updater
-Auto Updater for AkzTweaks
+# AkzTweaks
+Join For A Key
+Discord : https://discord.gg/3FFkNajxvX
